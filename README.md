@@ -1,1 +1,2 @@
-# La-creaci-n-del-Banco-de-la-Naci-n-y-la-conversi-n-monetaria-de-1899
+# La-creación-del-Banco-de-la-Nación-y-la-conversión-monetaria-de-1899
+La creación del Banco de la Nación es en este sentido el acontecimiento decisivo. La postración del país luego del cierre de los bancos oficiales puede abordarse recordando las palabras pronunciadas por el Dr. Balestra, miembro de la comisión de hacienda de la Cámara en la sesión del 2 de octubre de 1891 al discutirse el proyecto de creación de ese banco. Todos los señores diputados, saben que el Correo está sirviendo de banco en estos momentos, teniendo que mandar hasta las más pequeñas sumas a las provincias, en “valores declarados”, puesto que ningún banco da giro ni se hace ninguna operación bancaria.
